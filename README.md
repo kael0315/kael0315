@@ -2,8 +2,7 @@
 <br />
 
  
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=500&background=FF191900&width=435&lines=Ka3L)](https://git.io/typing-svg)
-
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=500&background=FF1919CF&width=435&lines=Ka3L)](https://git.io/typing-svg)
  ---
  
 # 💻 Skills:
