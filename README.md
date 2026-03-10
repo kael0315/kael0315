@@ -17,13 +17,13 @@
  
 # 🎲 Hobbies:
  
-•🏃‍♂️ Running   •📖 Reading      •🌱 Gardening        •🕹️ Gaming
-•🎨 Painting  •🌀 Beyblading   •🛹 Skateboarding    •🎹 Playing the piano
+• Streaming  • Dancing  • Gaming
+• Playing instuments
  
 ---
  
 # 📞 Contacts:
 
  
-## — "What would life be without challenges"
+## — "It is what it is"
  
