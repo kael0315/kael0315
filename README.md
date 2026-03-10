@@ -1,4 +1,4 @@
-<p align="center"><a href="https://kael0315.github.io"><img width="100%" alt="Hello! I'm Christian Joseph Ingan "  /></a></p>
+<p align="center"><a href="https://kael0315.github.io">< width="100%" alt="Hello! I'm Christian Joseph Ingan "  /></a></p>
  
 <br />
  
