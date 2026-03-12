@@ -37,7 +37,7 @@
 # 🎲 Hobbies:
  
 • Streaming  • Dancing  • Gaming
-• Playing instuments
+• Playing instruments
  
 ---
  
